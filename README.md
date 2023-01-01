@@ -56,5 +56,7 @@
 >  [伊朗在军演中成功测试多款防空系统](https://news.cctv.com/2023/01/01/ARTIaVMpw5t1gX84c4CCdn61230101.shtml)
 >
 >  [新疆喀什地区叶城县发生4.2级地震 震源深度101千米](https://www.fcm.chinanews.com.cn/gn/2023/01-01/9925894.shtml)
->
+>  
+>  [风暴来袭 美国加州面临大面积洪水灾害和停电](https://2020sjxgq.chinanews.com/gj/2023/01-01/9925918.shtml)
+>  
 #### [一周军评：一线硬撼强敌的飞行员，并不是“刺头”](https://www.guancha.cn/yangji/2023_01_01_673787_s.shtml)
