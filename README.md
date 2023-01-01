@@ -15,6 +15,8 @@
 >
 >  [俄扩军令元旦正式生效 预计俄现役军人总数将超115万](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=800916006621341245&toc_style_id=feeds_default&share_to=copy_url&track_id=a5d53e60-ea59-43a6-a772-1e60d21c42f8)
 >  
+>  [朝鲜宣布发射超大型火箭炮](https://news.cnr.cn/native/gd/20230101/t20230101_526111049.shtml)
+>  
 >  [1月1日起一批新规开始实施](https://m.gmw.cn/baijia/2023-01/01/1303240729.html) 
 >> [新《铁路旅客运输规程》](https://xxgk.mot.gov.cn/2020/jigou/fgs/202211/t20221117_3710710.html)
 >> 
