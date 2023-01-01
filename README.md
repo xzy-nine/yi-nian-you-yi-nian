@@ -43,4 +43,8 @@
 >  
 >  [全国征兵女兵今起开始报名](https://www.gfbzb.gov.cn/nvbing/)
 >  
+>  [北京：1月1日起 租住保障性租赁房可提取公积金](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=4733648694161338216&toc_style_id=feeds_default&share_to=copy_url&track_id=320bb95f-e1c7-4832-a0a5-f50e3e3a18a4)
+>  
+>  [摩洛哥外交部宣布：1月3日起所有来自中国的旅客不得入境，不论国籍](https://www.guancha.cn/internation/2023_01_01_673733.shtml)
+>  
 #### [一周军评：一线硬撼强敌的飞行员，并不是“刺头”](https://www.guancha.cn/yangji/2023_01_01_673787_s.shtml)
