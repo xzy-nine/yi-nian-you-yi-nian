@@ -10,7 +10,9 @@
 >  [湖北汉江大桥跨年夜因放烟花起火](https://k.sina.com.cn/article_1647210043_m622e6e3b0330178uv.html?cre=tianyi&mod=wpage&loc=1&r=0&rfunc=2&tj=cxvideo_wpage&tr=381) 
 >  
 >  [新年第一天，乌克兰全境发布空袭警报](https://mp.weixin.qq.com/s?__biz=MzI3MTQzNjYxNw==&mid=2247701091&idx=4&sn=818191185507ab4068e1cadb915e3b7a&chksm=eacc4c45ddbbc55311b4b0a6e7bac1152d9ee983ef8c95ee83bb7d9f187a1831d50e03e45dfd#rd)
->  
+>
+>  [摩洛哥外交部宣布：1月3日起所有来自中国的旅客不得入境，不论国籍](https://www.guancha.cn/internation/2023_01_01_673733.shtml)
+>
 >  [8:30 东航全球首架C919新年起飞](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=16806599770709711338&toc_style_id=feeds_default&share_to=copy_url&track_id=54aaece5-08c3-48b9-a412-49f1023c3e60)
 >
 >  [俄扩军令元旦正式生效 预计俄现役军人总数将超115万](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=800916006621341245&toc_style_id=feeds_default&share_to=copy_url&track_id=a5d53e60-ea59-43a6-a772-1e60d21c42f8)
@@ -44,7 +46,5 @@
 >  [全国征兵女兵今起开始报名](https://www.gfbzb.gov.cn/nvbing/)
 >  
 >  [北京：1月1日起 租住保障性租赁房可提取公积金](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=4733648694161338216&toc_style_id=feeds_default&share_to=copy_url&track_id=320bb95f-e1c7-4832-a0a5-f50e3e3a18a4)
->  
->  [摩洛哥外交部宣布：1月3日起所有来自中国的旅客不得入境，不论国籍](https://www.guancha.cn/internation/2023_01_01_673733.shtml)
->  
+>   
 #### [一周军评：一线硬撼强敌的飞行员，并不是“刺头”](https://www.guancha.cn/yangji/2023_01_01_673787_s.shtml)
