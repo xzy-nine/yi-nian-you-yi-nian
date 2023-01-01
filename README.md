@@ -46,5 +46,15 @@
 >  [全国征兵女兵今起开始报名](https://www.gfbzb.gov.cn/nvbing/)
 >  
 >  [北京：1月1日起 租住保障性租赁房可提取公积金](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=4733648694161338216&toc_style_id=feeds_default&share_to=copy_url&track_id=320bb95f-e1c7-4832-a0a5-f50e3e3a18a4)
->   
+>
+>  [印度与巴基斯坦互换核设施清单] (http://www.news.cn/world/2023-01/01/c_1129249901.htm)
+>
+>  [非凡的领航丨习近平：遇到的困难很多，有的困难是空前的，但是我们做到了](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=17250168647755084489&t=1672574838728&toc_style_id=feeds_default&share_to=copy_url&track_id=2033fac0-7daf-4add-8e77-1ab50b4d865f)
+>
+>  [稳经济 促发展 强信心•权威访谈丨2023年中国经济运行有望总体回升](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=8642767803882595112&toc_style_id=feeds_default&share_to=copy_url&track_id=348a68e9-ef16-414e-8980-1f6f342485b7)
+>
+>  [伊朗在军演中成功测试多款防空系统](https://news.cctv.com/2023/01/01/ARTIaVMpw5t1gX84c4CCdn61230101.shtml)
+>
+>  [新疆喀什地区叶城县发生4.2级地震 震源深度101千米](https://www.fcm.chinanews.com.cn/gn/2023/01-01/9925894.shtml)
+>
 #### [一周军评：一线硬撼强敌的飞行员，并不是“刺头”](https://www.guancha.cn/yangji/2023_01_01_673787_s.shtml)
