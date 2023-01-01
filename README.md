@@ -47,7 +47,7 @@
 >  
 >  [北京：1月1日起 租住保障性租赁房可提取公积金](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=4733648694161338216&toc_style_id=feeds_default&share_to=copy_url&track_id=320bb95f-e1c7-4832-a0a5-f50e3e3a18a4)
 >
->  [印度与巴基斯坦互换核设施清单] (http://www.news.cn/world/2023-01/01/c_1129249901.htm)
+>  [印度与巴基斯坦互换核设施清单](http://www.news.cn/world/2023-01/01/c_1129249901.htm)
 >
 >  [非凡的领航丨习近平：遇到的困难很多，有的困难是空前的，但是我们做到了](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=17250168647755084489&t=1672574838728&toc_style_id=feeds_default&share_to=copy_url&track_id=2033fac0-7daf-4add-8e77-1ab50b4d865f)
 >
