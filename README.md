@@ -1,4 +1,4 @@
-# <center>**2023**</center>
+# 2023
 ## 一月
 ### 1日
 >  [鄂尔多斯疾控抽样调查:1.75%无症状](https://www.guancha.cn/politics/2022_12_31_673711.shtml)
@@ -38,4 +38,5 @@
 >  
 >  [广州本次新冠疫情已达峰](https://www.guancha.cn/politics/2023_01_01_673776_s.shtml)
 >  
+15:42
  
