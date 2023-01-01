@@ -1,12 +1,12 @@
 # 2023
 ## 一月
 ### 1日
+>  [南部战区：美机蓄意改变飞行姿态、危险抵近我机](https://www.guancha.cn/military-affairs/2022_12_31_673719.shtml?s=zwyxgtjbt)
+>
 >  [鄂尔多斯疾控抽样调查:1.75%无症状](https://www.guancha.cn/politics/2022_12_31_673711.shtml)
->  
+> 
 >  [2022年全国电影票房300.67亿元](https://www.guancha.cn/politics/2023_01_01_673752.shtml)
 >  
->  [南部战区：美机蓄意改变飞行姿态、危险抵近我机](https://www.guancha.cn/military-affairs/2022_12_31_673719.shtml?s=zwyxgtjbt)
-> 
 >  [湖北汉江大桥跨年夜因放烟花起火](https://k.sina.com.cn/article_1647210043_m622e6e3b0330178uv.html?cre=tianyi&mod=wpage&loc=1&r=0&rfunc=2&tj=cxvideo_wpage&tr=381) 
 >  
 >  [新年第一天，乌克兰全境发布空袭警报](https://mp.weixin.qq.com/s?__biz=MzI3MTQzNjYxNw==&mid=2247701091&idx=4&sn=818191185507ab4068e1cadb915e3b7a&chksm=eacc4c45ddbbc55311b4b0a6e7bac1152d9ee983ef8c95ee83bb7d9f187a1831d50e03e45dfd#rd)
@@ -18,6 +18,7 @@
 >  [朝鲜宣布发射超大型火箭炮](https://news.cnr.cn/native/gd/20230101/t20230101_526111049.shtml)
 >  
 >  [1月1日起一批新规开始实施](https://m.gmw.cn/baijia/2023-01/01/1303240729.html) 
+>  
 >> [新《铁路旅客运输规程》](https://xxgk.mot.gov.cn/2020/jigou/fgs/202211/t20221117_3710710.html)
 >> 
 >>>[今起实名制儿童火车票将按照年龄购买](http://www.news.cn/2023-01/01/c_1129248851.htm) 
@@ -40,5 +41,6 @@
 >  
 >  [广州本次新冠疫情已达峰](https://www.guancha.cn/politics/2023_01_01_673776_s.shtml)
 >  
+>  [全国征兵女兵今起开始报名](https://www.gfbzb.gov.cn/nvbing/)
+>  
 #### [一周军评：一线硬撼强敌的飞行员，并不是“刺头”](https://www.guancha.cn/yangji/2023_01_01_673787_s.shtml)
- 
