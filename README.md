@@ -90,6 +90,8 @@
 >  
 >  [上海已监测到XBB.1.5毒株](https://m.gmw.cn/2023-01/02/content_1303241571.htm)
 >  
+>> [上海目前未发现境外输入毒株BQ.1和XBB的本土传播](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=2517780243339121416&t=1672659102246&toc_style_id=feeds_default&share_to=copy_url&track_id=af16de21-c37b-4338-bd57-cfd9e36cde23)  
+>  
 >  [美国加州萨克拉门托洪水泛滥 已致1人死亡](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=15231809953012376345&toc_style_id=feeds_default&share_to=copy_url&track_id=8b2ea7ef-ffa7-41e4-b826-8ba34544490d)
 >  
 >  [利比亚苏尔特发现18具身份不明的尸体](https://world.huanqiu.com/article/4B7baB20SSv)
@@ -121,5 +123,25 @@
 >  [西伯利亚天然气直通上海 中俄东线日输气超6000万立方米](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=17946430694330709930&toc_style_id=feeds_default&share_to=copy_url&track_id=9c5c1255-e902-484e-9e58-133c44618e72)
 >  
 >  [高中生失踪80天 警方通报办案进展](https://www.thepaper.cn/newsDetail_forward_21397471?commTag=true)
+>  
+>  [巴西新总统签署保护亚马孙地区等环保法令](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=12959142105085810016&toc_style_id=feeds_default&share_to=copy_url&track_id=59615ad2-0e55-46cf-8e4b-75b3dea74234)
+>  
+>  [日本禽流感疫情持续扩大](https://www.nbd.com.cn/articles/2023-01-02/2616800.html)
+>  
+>  [梅州4岁女童被同村男子拐走以6万卖掉](https://m.gmw.cn/2023-01/02/content_1303241772.htm)
+>  
+>  [元旦假期全国国内游客出游5271.34万人次](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=4490857350748648156&t=1672658489380&toc_style_id=feeds_default&share_to=copy_url&track_id=173984b5-2e7b-4830-8be8-e39e483e8a49)
+>  
+>  [叙利亚反对派武装车辆遭袭 多人死伤](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=12907517726429790045&toc_style_id=feeds_default&share_to=copy_url&track_id=36df139e-b5bd-40c7-bdb5-83083d34ba5a)
+>  
+>>[叙利亚外交部谴责以色列袭击行为违反国际法和联合国宪章](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=9764656049353809119&toc_style_id=feeds_default&share_to=copy_url&track_id=53891ccd-d9cd-48f1-a5d3-345560e78c6f)  
+>  
+>  [日本山形县山体滑坡致2人死亡](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=8702348784165992937&toc_style_id=feeds_default&share_to=copy_url&track_id=69017126-ff9d-442f-8b7e-974f38f50a87)
+>  
+>  [日本福岛县发生两车相撞事故 致4人死亡](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=7985319082397713846&toc_style_id=feeds_default&share_to=copy_url&track_id=2a651908-ee02-4826-9f49-5596475b01e4)
+>  
+>  [以色列央行第7次加息 基准利率创2008年来最高纪录](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=13903433036590984817&toc_style_id=feeds_default&share_to=copy_url&track_id=0b5132da-b78c-462d-8ee4-da0c2a5d1fe9)
+>  
+>  [俄国防部：顿涅茨克一临时部署点遭海马斯火箭弹袭击，63名俄士兵死亡](https://world.huanqiu.com/article/4B7vBjEpWxl)
 
  
