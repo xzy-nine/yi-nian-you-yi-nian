@@ -58,8 +58,68 @@
 >  [新疆喀什地区叶城县发生4.2级地震 震源深度101千米](https://www.fcm.chinanews.com.cn/gn/2023/01-01/9925894.shtml)
 >  
 >  [风暴来袭 美国加州面临大面积洪水灾害和停电](https://2020sjxgq.chinanews.com/gj/2023/01-01/9925918.shtml)
->  
+>   
+>  [台媒：解放军军机“跨年”巡台](https://www.cankaoxiaoxi.com/tw/20230101/2500375.shtml)
+>   
 #### [一周军评：一线硬撼强敌的飞行员，并不是“刺头”](https://www.guancha.cn/yangji/2023_01_01_673787_s.shtml)
 
 ### 2日
 >
+>  [卢拉宣誓就任巴西新一任总统](https://www.chinanews.com.cn/gj/2023/01-02/9925925.shtml)
+>  
+>  [印尼巴布亚省发生5.1级地震 震源深度20千米](https://www.chinanews.com.cn/gj/2023/01-02/9925928.shtml)
+>  
+>  [美国加利福尼亚州发生5.2级地震 震源深度30千米](http://fjdzj.gov.cn/ar/2023010214000002.htm#:~:text=%E4%B8%AD%E5%9B%BD%E5%9C%B0%E9%9C%87%E5%8F%B0%E7%BD%91%E6%AD%A3%E5%BC%8F,%E6%BA%90%E6%B7%B1%E5%BA%A630%E5%8D%83%E7%B1%B3%E3%80%82)
+>  [巴基斯坦南部发生一起交通事故致7人死亡](https://world.huanqiu.com/article/4B7PZUCQ5hu)
+>  
+>  [尼泊尔博克拉国际机场投入运行](http://www.news.cn/world/2023-01/02/c_1129250205.htm)
+>  
+>  [美国佛罗里达州发生枪击事件 致2死4伤](https://www.chinanews.com.cn/gj/2023/01-02/9925948.shtml)
+>  
+>  [俄称打击乌无人机基地 乌称空袭俄集结点](https://www.chinanews.com.cn/gj/2023/01-02/9925950.shtml)
+>  
+>  [墨西哥一监狱发生严重骚乱 致14人死亡24名囚犯逃脱](https://world.huanqiu.com/article/4B7UYgZ6GjP)
+>  
+>  [美国芝加哥市发生枪击事件 致1死3伤](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=8972146573023413895&toc_style_id=feeds_default&share_to=copy_url&track_id=309a7fcf-a9d9-4cf5-8928-1b9107eaad81)
+>  
+>  [菲律宾降雨导致的死亡人数升至51人](https://www.chinanews.com.cn/gj/2023/01-02/9926006.shtml) 
+>  
+>  [叙利亚军方称以色列空袭大马士革机场 造成2名士兵死亡](https://www.chinanews.com.cn/gj/2023/01-02/9926008.shtml)
+>  
+>  [元旦当日全国铁路发送旅客474.5万人次](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=10823092053114189632&toc_style_id=feeds_default&share_to=copy_url&track_id=1de40c81-72d6-4abc-9832-65d4787bde8c)
+>  
+>  [上海已监测到XBB.1.5毒株](https://m.gmw.cn/2023-01/02/content_1303241571.htm)
+>  
+>  [美国加州萨克拉门托洪水泛滥 已致1人死亡](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=15231809953012376345&toc_style_id=feeds_default&share_to=copy_url&track_id=8b2ea7ef-ffa7-41e4-b826-8ba34544490d)
+>  
+>  [利比亚苏尔特发现18具身份不明的尸体](https://world.huanqiu.com/article/4B7baB20SSv)
+>  
+>  [杀安倍的山上彻也发声](https://world.huanqiu.com/article/4B7ZTQjVWLc)
+>  
+>  [外交部长秦刚大使与美国国务卿布林肯通电话](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=10576759781202844526&t=1672637470978&toc_style_id=feeds_default&share_to=copy_url&track_id=b67bb64c-c484-4f15-82c3-cc24c1336196)
+>  0
+>  [乌克兰基辅市能源设施受损严重 已实施紧急停电](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=9710114541976054125&t=1672640067182&toc_style_id=feeds_default&share_to=copy_url&track_id=5a5f6e8d-19b4-4277-8457-4f6dfa41d7a4)
+>  
+>  [受大雾影响 土耳其暂时关闭达达尼尔海峡](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=16780037666809760495&toc_style_id=feeds_default&share_to=copy_url&track_id=77bc22c2-4172-4503-987b-daf38a29fa53)
+>  
+>  [土耳其马尔丁省发生一起交通事故 致6死5伤](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=14624170253622158423&toc_style_id=feeds_default&share_to=copy_url&track_id=a5b823ff-9e5b-4b29-b2c2-8da1ba453ba5)
+>  
+>  [以军在约旦河西岸打死两名巴勒斯坦人](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=9756797380596027826&toc_style_id=feeds_default&share_to=copy_url&track_id=612adc0c-4a79-4754-9450-950aa1c6abdc)
+>  
+>  [澳大利亚直升机相撞事故已造成4死3重伤](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=272912496986125135&t=1672643559771&toc_style_id=feeds_default&share_to=copy_url&track_id=930bd7b4-8d14-4eed-b725-16653756afd7)
+>  
+>  [全球首架国产大飞机C919飞抵海口美兰国际机场](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=1787470337033026517&toc_style_id=feeds_default&share_to=copy_url&track_id=a0528af2-2335-4743-892f-fea1245eaf0e)
+>  
+>  [新疆和田地区皮山县发生3.3级地震 震源深度107千米](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=11311626103703355718&toc_style_id=feeds_default&share_to=copy_url&track_id=4ff3bbff-7aab-447c-9ad8-048dff5430e7)
+>  
+>  [苏莱马尼遇袭三周年之际 伊朗外交部发表声明谴责美国](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=6122889319494972736&toc_style_id=feeds_default&share_to=copy_url&track_id=02de7659-ea76-4383-951a-f55c7a4aadcc)
+>  
+>  [多地取消免费核酸采样点](https://www.guancha.cn/politics/2023_01_02_673940.shtml?s=zwyxgtjbt) 
+>  
+>  [毛里求斯就查戈斯群岛归属问题与英国开始谈判](https://www.cankaoxiaoxi.com/world/20230102/2500450.shtml)
+>  
+>  [西伯利亚天然气直通上海 中俄东线日输气超6000万立方米](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=17946430694330709930&toc_style_id=feeds_default&share_to=copy_url&track_id=9c5c1255-e902-484e-9e58-133c44618e72)
+>  
+>  [高中生失踪80天 警方通报办案进展](https://www.thepaper.cn/newsDetail_forward_21397471?commTag=true)
+
+ 
