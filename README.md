@@ -52,6 +52,8 @@
 >  [非凡的领航丨习近平：遇到的困难很多，有的困难是空前的，但是我们做到了](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=17250168647755084489&t=1672574838728&toc_style_id=feeds_default&share_to=copy_url&track_id=2033fac0-7daf-4add-8e77-1ab50b4d865f)
 >
 >  [稳经济 促发展 强信心•权威访谈丨2023年中国经济运行有望总体回升](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=8642767803882595112&toc_style_id=feeds_default&share_to=copy_url&track_id=348a68e9-ef16-414e-8980-1f6f342485b7)
+###  3日
+
 >
 >  [伊朗在军演中成功测试多款防空系统](https://news.cctv.com/2023/01/01/ARTIaVMpw5t1gX84c4CCdn61230101.shtml)
 >
@@ -141,7 +143,62 @@
 >  [日本福岛县发生两车相撞事故 致4人死亡](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=7985319082397713846&toc_style_id=feeds_default&share_to=copy_url&track_id=2a651908-ee02-4826-9f49-5596475b01e4)
 >  
 >  [以色列央行第7次加息 基准利率创2008年来最高纪录](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=13903433036590984817&toc_style_id=feeds_default&share_to=copy_url&track_id=0b5132da-b78c-462d-8ee4-da0c2a5d1fe9)
+ 
+  
+###  3日
 >  
 >  [俄国防部：顿涅茨克一临时部署点遭海马斯火箭弹袭击，63名俄士兵死亡](https://world.huanqiu.com/article/4B7vBjEpWxl)
-
- 
+>> [俄称63名士兵死亡 乌:是400名](https://military.china.com/important/64/20230103/44205897.html) 
+> 
+>  [巴西与委内瑞拉恢复大使级外交关系](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=7841501282959951908&toc_style_id=feeds_default&share_to=copy_url&track_id=fd9158c2-0706-4542-b85c-32561c45db93)
+>  
+>  [新疆巴音郭楞州轮台县发生3.2级地震 震源深度10千米](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=9279251902433097763&toc_style_id=feeds_default&share_to=copy_url&track_id=414a336e-b919-4dc5-a2c1-db63299ed06f)
+>  
+>  [北京通州2名男子掉入冰窟窿遇难 消防提醒：远离野冰！](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=14129879737841444850&toc_style_id=feeds_default&share_to=copy_url&track_id=3e9d0415-bd2d-4507-82ed-0e2becac0a94)
+>  
+>  探访医院
+>>  [记者探访急诊科丨重庆组织全院力量支持急诊 保障急危重症患者救治](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=15515599337864346317&toc_style_id=feeds_default&share_to=copy_url&track_id=6328de74-3b2b-4de0-9377-1f056804e8a4)
+>>  
+>>  [记者蹲点保定市第一中心医院：筑牢生命最后防线](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=4971322704699933501&t=1672704640196&toc_style_id=feeds_default&share_to=copy_url&track_id=74ce4dd8-e3f7-40b1-adb7-f97e5c401e81)
+>>  
+>>  [新闻1+1丨重症高峰，上海怎样应对？](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=5880062643230364371&toc_style_id=feeds_default&share_to=copy_url&track_id=ba1b28d9-a195-436f-904e-d17b82b66715)
+>>  
+>>  [畅通绿色通道！各地多措并举 筑牢基层疫情防控屏障](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=6198388558751144350&toc_style_id=feeds_default&share_to=copy_url&track_id=6327a76e-67a3-4579-b7ac-208b44334e8b)
+>>  
+>  [贝利遗体告别仪式在桑托斯队主场举行](https://www.guancha.cn/sports/2023_01_03_674000.shtml)
+>  
+>> [国际足联主席：计划要求各国用贝利名字命名一个足球场](https://m.gmw.cn/2023-01/03/content_1303242015.htm#:~:text=%E6%8D%AE%E8%8B%B1%E5%9B%BD%E5%A4%A9%E7%A9%BA%E6%96%B0%E9%97%BB%E7%BD%91,%E5%91%BD%E5%90%8D%E4%B8%80%E4%B8%AA%E8%B6%B3%E7%90%83%E5%9C%BA%E3%80%82)
+>  
+>  [泉州油罐车爆炸 未发现人员伤亡](https://www.cnr.cn/fj/yw/20230103/t20230103_526112375.shtml)
+>  
+>  [千岛群岛发生5.4级地震 震源深度100千米](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=3649204765011254299&toc_style_id=feeds_default&share_to=copy_url&track_id=81011c27-72a6-4e91-8698-608f1adf1f51)
+>  
+>  [习近平致函祝贺卢拉就任巴西总统](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=11395243108263901354&t=1672718455088&toc_style_id=feeds_default&share_to=copy_url&track_id=54027680-ed96-43d7-ae01-48f4d784cf70)
+>  
+>  [约旦首都附近一工厂发生爆炸 已致2人死亡](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=17374665515999281606&t=1672687286898&toc_style_id=feeds_default&share_to=copy_url&track_id=e20e951a-bf4a-40de-8b88-466cfbcccf15)
+>  
+>  [日本伊豆群岛发生5.0级地震](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=3453763654403063002&toc_style_id=feeds_default&share_to=copy_url&track_id=d7c034d1-75c1-4ec0-beb6-48bddfc60035)
+>  
+>  [日本禽流感疫情持续扩大 感染规模创新高](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=3936884426129545356&t=1672704941873&toc_style_id=feeds_default&share_to=copy_url&track_id=7678f6cd-1439-401a-9b90-4e3dc69ec798)
+>  
+>  [伊朗外交部：已做好完成伊核协议相关谈判的准备](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=11662024788756764500&toc_style_id=feeds_default&share_to=copy_url&track_id=682eef42-f13f-4df3-b64f-fd2623b7544a)
+>  
+>  [美国加州遭遇冬季风暴 引发洪水致2人死亡](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=13568703377297408210&toc_style_id=feeds_default&share_to=copy_url&track_id=ca0d6e8d-720e-48e1-876f-f6743c501629)
+>  
+>  [墨西哥监狱骚乱事件死亡人数上升至19人](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=994144187988807401&toc_style_id=feeds_default&share_to=copy_url&track_id=9c7070ac-c49d-42e6-9205-acc65dca0ab7)
+>  
+>  [受大雾天气影响 安徽多条高速公路采取交通管制](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=3613570003023339233&toc_style_id=feeds_default&share_to=copy_url&track_id=3180346c-cd35-4e64-83ab-810f81b96259)
+>  
+>  [民调：65%的英国人支持举行重入欧盟公投](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=9111592677708171312&toc_style_id=feeds_default&share_to=copy_url&track_id=8385cdfb-8a96-4e0c-9cd3-8ddf5d9d2430)
+>  
+>  [郑州出台户籍制度改革新政：不受社保缴费、居住年限限制](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=6103813904616464544&toc_style_id=feeds_default&share_to=copy_url&track_id=ee8ace1f-013c-4d00-a2d6-2bcd1a35c223)
+>  
+>  [上海迎来重症救治集中期，专家解读应对情况](http://m.cyol.com/gb/articles/2023-01/03/content_Kaa4LGFBAV.html)
+>  
+>  [贝利遗体告别仪式在巴西桑托斯市举行](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=1970840485960743077&t=1672713472520&toc_style_id=feeds_default&share_to=copy_url&track_id=46deb6e1-364b-4560-8fa8-fe3e62ec5e2f)
+>  
+>  [2022年国家铁路完成货物发送量39亿吨](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=1943071905905185278&toc_style_id=feeds_default&share_to=copy_url&track_id=80219222-082b-44a8-a7ca-d226f1ffd109)
+>  
+>  [2022年全国铁路完成固定资产投资7109亿元](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=8826342833840558943&toc_style_id=feeds_default&share_to=copy_url&track_id=e1cbfcc7-914f-4704-bb92-762f0ef0ef0d)
+>  
+>  [预测新冠如何突变的人](https://mp.weixin.qq.com/s/M-9_pTpY5oZlOPXruKP26g)
