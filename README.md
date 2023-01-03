@@ -52,8 +52,6 @@
 >  [非凡的领航丨习近平：遇到的困难很多，有的困难是空前的，但是我们做到了](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=17250168647755084489&t=1672574838728&toc_style_id=feeds_default&share_to=copy_url&track_id=2033fac0-7daf-4add-8e77-1ab50b4d865f)
 >
 >  [稳经济 促发展 强信心•权威访谈丨2023年中国经济运行有望总体回升](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=8642767803882595112&toc_style_id=feeds_default&share_to=copy_url&track_id=348a68e9-ef16-414e-8980-1f6f342485b7)
-###  3日
-
 >
 >  [伊朗在军演中成功测试多款防空系统](https://news.cctv.com/2023/01/01/ARTIaVMpw5t1gX84c4CCdn61230101.shtml)
 >
