@@ -90,7 +90,9 @@
 >  
 >  [上海已监测到XBB.1.5毒株](https://m.gmw.cn/2023-01/02/content_1303241571.htm)
 >  
->> [上海目前未发现境外输入毒株BQ.1和XBB的本土传播](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=2517780243339121416&t=1672659102246&toc_style_id=feeds_default&share_to=copy_url&track_id=af16de21-c37b-4338-bd57-cfd9e36cde23)  
+>> [上海目前未发现境外输入毒株BQ.1和XBB的本土传播](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=2517780243339121416&t=1672659102246&toc_style_id=feeds_default&share_to=copy_url&track_id=af16de21-c37b-4338-bd57-cfd9e36cde23)
+>> 
+>> [预测新冠如何突变的人](https://mp.weixin.qq.com/s/M-9_pTpY5oZlOPXruKP26g)  
 >  
 >  [美国加州萨克拉门托洪水泛滥 已致1人死亡](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=15231809953012376345&toc_style_id=feeds_default&share_to=copy_url&track_id=8b2ea7ef-ffa7-41e4-b826-8ba34544490d)
 >  
@@ -198,5 +200,4 @@
 >  [2022年国家铁路完成货物发送量39亿吨](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=1943071905905185278&toc_style_id=feeds_default&share_to=copy_url&track_id=80219222-082b-44a8-a7ca-d226f1ffd109)
 >  
 >  [2022年全国铁路完成固定资产投资7109亿元](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=8826342833840558943&toc_style_id=feeds_default&share_to=copy_url&track_id=e1cbfcc7-914f-4704-bb92-762f0ef0ef0d)
->  
->  [预测新冠如何突变的人](https://mp.weixin.qq.com/s/M-9_pTpY5oZlOPXruKP26g)
+
