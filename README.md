@@ -280,3 +280,8 @@
 >  [印尼巴布亚省东北海岸附近区域发生5.2级地震](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=15398657311477560879)
 >
 >  [国家体育总局公布新修订的《体育赛事活动管理办法》](http://www.gov.cn/xinwen/2023-01/03/content_5734903.htm#:~:text=新华社北京1月3日电（记者,王镜宇）国家体育总局官方网站3日发布了新修订的《体育赛事活动管理办法》。%20国家体育总局政策法规司负责人在相关解读文章中表示，《体育赛事活动管理办法》（以下简称《办法》）于近日修订公布，自2023年1月1日起施行。)
+>  [乌克兰总统泽连斯基与荷兰首相吕特通话](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=8087830601305744577)
+>  
+>  [斯诺克球员赵心童、张健康因涉嫌操纵比赛遭禁赛](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=9024710639516851179)
+>  
+>  [俄称摧毁乌军火箭弹 乌称击退俄军进攻](https://content-static.cctvnews.cctv.com/snow-book/index.html?item_id=3408906964604392022)
